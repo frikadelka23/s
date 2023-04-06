@@ -1,1 +1,1 @@
-# https://frikadelka23.github.io/s/
+# https://frikadelka23.github.io/standartizacia/
